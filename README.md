@@ -1,1 +1,0 @@
-# Praktikum-UI-UX
